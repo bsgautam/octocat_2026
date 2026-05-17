@@ -1,4 +1,4 @@
-# octocat_2026⚡
+# Octocat_2026⚡
 
 # 🦸 Marvel Inspired Octocats Collection 🐙✨
 
